@@ -1,3 +1,3 @@
 # Carreira-Profissional
 Diretorio onde  esta alocado minha carreira profissional.
-Ser um gerente de buffet profissional é combinar a rigidez da gestão de processos com a flexibilidade da hospitalidade. É ser a pessoa em quem os clientes confiam de olhos fechados no dia mais importante de suas vidas, sabendo que tudo será executado com maestria, elegância e segurança.
+aqui eu conto um pouco da minha experiencia na area gastronomica,mais precisamente na area  de licitações publicas. Desejo unir os conhecimentos que venho ganhando na area da Ti para aplicar na area de buffet.
